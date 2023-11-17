@@ -1,2 +1,3 @@
-# 1lko.github.io
-1lko/ByE.Bl-OcKeR is a special project that i'm working on to establish proxies on blocked internets such as school/work computers, phones and ipads!
+# ✴  🎀  𝒷.𝓎𝑒.𝒷𝓁💍𝒸𝓀𝑒𝓇 𝓅𝓇😍𝓍.𝓎  🎀  ✴.
+
+Welcome to my long-awaited preoject, ✴  🎀  𝒷.𝓎𝑒.𝒷𝓁💍𝒸𝓀𝑒𝓇 𝓅𝓇😍𝓍.𝓎  🎀  ✴!
